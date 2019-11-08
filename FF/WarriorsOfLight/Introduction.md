@@ -1,0 +1,9 @@
+The world of Onobu has existed in relative peace and prosperity for the past 2,000 years, ever since the destruction of Chaos.
+In recent years a man named Lukahn has given fame to a prophecy that four Light Warriors will come to save the world in a time
+of darkness.  Many believed this to be an old prophecy that had already come to pass, when Chaos was defeated two millinea ago,
+until the orbs of light were recently re-discovered.
+
+Your characters have each stumbled upon one of the four orbs of light - powerful artifacts of unknown potential linked to each
+of the elemental powers.  Players should determine how and which orb they have discovered.  It is likely that the air orb was
+found high on a mountaintop, and the water orb submerged in a lake, etc.  Regardless, they have all seemingly emerged back into
+the world at the same time, and their bearers know that they are the warriors of light.  
